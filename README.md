@@ -38,7 +38,6 @@
 ![archi?](https://64.media.tumblr.com/e900b48854944ab9fbaff1af874826e5/cba54ca0e4f011da-47/s250x400/a3e02e6087c48197deed89f398ba68c4173c09fd.webp)
 ![cute](https://64.media.tumblr.com/28f197fec9b438434bf0a9c2f8523c94/29bb5eac02895ac5-93/s250x400/951066e5839ab6f0c757ebe80946dfdb2917cdff.gifv)
 ![teeheehee](https://64.media.tumblr.com/5620e876b04de749fd38127c37ae27c1/1938cde5f61b5b3a-9b/s250x400/93dec59c1ed642362a9ede07805ff97e3e61524d.gifv)
-![dovey](https://64.media.tumblr.com/38fb0dc1c02bd78630349f01d5cb175a/126440c615e09744-45/s250x400/9fc11addecf9bbff91f1d6cfa6e7e576c2f4d4db.gifv)
 ![ooh](https://64.media.tumblr.com/b09aa41cf8ff20d409e32188aa40e6af/9548459a7fc25826-12/s500x750/d57c18a55ad3f6f1c47d908aadce14da61d5ae32.gifv)
 ![birb](https://64.media.tumblr.com/aeef4f543bb46a084a223036f80445ea/3604da32d4c7916b-a9/s400x600/a41ed55645155eee26c9dd62f9c2306a0fbc7306.gifv)
 
