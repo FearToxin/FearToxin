@@ -9,7 +9,9 @@
 
 <img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/0c9191f6-83fb-45a4-bc8e-69d929d72ac2" />
 
- <p align="center"> $\color{#AD1300}{TF2,⠀RDR2,ㅤDC,⠀COD,⠀and⠀more.⠀Music⠀lover!⠀We'll⠀listen⠀to⠀just⠀about⠀anything.}$
+<p align="center"> $\color{#AD1300}{``⠀ICH⠀BIN⠀PLATZ⠀EINS⠀!⠀``}$
+
+<p align="center"> $\color{#AD1300}{TF2,⠀RDR2,ㅤDC,⠀COD,⠀and⠀more.⠀Music⠀lover!⠀We'll⠀listen⠀to⠀just⠀about⠀anything.}$
 <p align="center"> $\color{#AD1300}{Fictive⠀heavy⠀system.}$
 <p align="center"> $\color{#AD1300}{Talkㅤtoㅤusㅤplsㅤ!⠀Whisper⠀or⠀chat⠀normally.⠀Whatever⠀works⠀!}$
 
