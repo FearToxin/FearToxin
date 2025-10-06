@@ -41,13 +41,11 @@
 ![cute](https://64.media.tumblr.com/28f197fec9b438434bf0a9c2f8523c94/29bb5eac02895ac5-93/s250x400/951066e5839ab6f0c757ebe80946dfdb2917cdff.gifv)
 ![teeheehee](https://64.media.tumblr.com/5620e876b04de749fd38127c37ae27c1/1938cde5f61b5b3a-9b/s250x400/93dec59c1ed642362a9ede07805ff97e3e61524d.gifv)
 ![ooh](https://64.media.tumblr.com/b09aa41cf8ff20d409e32188aa40e6af/9548459a7fc25826-12/s500x750/d57c18a55ad3f6f1c47d908aadce14da61d5ae32.gifv)
-![birb](https://64.media.tumblr.com/aeef4f543bb46a084a223036f80445ea/3604da32d4c7916b-a9/s400x600/a41ed55645155eee26c9dd62f9c2306a0fbc7306.gifv)
 
 ![where](https://64.media.tumblr.com/72adc1b43feef5849f24a78c1db3c836/3aa61a508503471d-19/s400x600/4feebd9dc4b3f221e0cd5f558e6eb58d825a9e4b.gifv)
-![huh](https://64.media.tumblr.com/a9cb5402db80b6cc7f1a96bddfdf202f/793b16dcb6f77cf8-55/s400x600/91798a1d69e8d57f558eedfae00697e19c8cc8ed.gifv)
 ![schizo](https://64.media.tumblr.com/03ca4d084e4edf61c9f1e045cab5a1c7/b0fac4f2d7526cec-55/s400x600/7610f944addd5bb30968d2157ba3719671cc2a94.pnj)
 ![sandvich](https://64.media.tumblr.com/f869b90a142dbc354a8632cb2bdcb3e0/490acd59bbc62ab6-26/s400x600/749b174c2801a27d429209378a85dbd3a167ce47.gifv)
 ![woah](https://64.media.tumblr.com/e8452ddbbbda76703456868c5d4d7f69/be01185c1206c628-8e/s250x400/9489f6c11b0cf8d2741528037cf942942dd4b166.gifv)
 
 
-***I LOVE GIFS! THERE WILL BE MORE TO COME!***
+***I LOVE GIFS! THERE MIGHT BE MORE TO COME!***
